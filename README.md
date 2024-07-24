@@ -8,7 +8,7 @@ _utilizo esse espaço para minha organização e compartilhamento do meus projet
 
 ### você entra em contato comigo
 
-wagner.fortes@escolapr.gov.br
+wagner.fortes@escola.pr.gov.br
 
 @MORENO007
 
